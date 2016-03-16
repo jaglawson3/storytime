@@ -22,11 +22,14 @@ Run! No, No, No it is too scary.
 Its arms are so long and its head is so hairy.
 
 Say Hi! How are you! We are two monsters,
-Big and small. A papa and baby, 
+Big and small. A papa and baby,
 
 What is your name, you who are so very tall?
 
 
+What do you see up by the tree?
+
+It is big and red and has a small head.
 
 
 
